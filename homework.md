@@ -17,6 +17,11 @@
 
 *- Leon, 1994*
 
+> __*Mathilda*__ : I don't wanna lose you, Leon.
+>
+> __*Léon*__ : You're not going to lose me. You've given me a taste for life. I wanna be happy. Sleep in a bed, have roots. And you'll never be alone again, Mathilda. Please, go now, baby, go. Calm down, I'll meet you at Tony's in an hour, I love you, now go, go now.
+>
+> **Leon,1994**
 
 **### Movies that I'm redy to review**
 
