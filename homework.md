@@ -23,3 +23,11 @@
 *1. Last Night, 2019*
 
 *2. Eat Pray Love, 2010*
+
+![Post Eat Pray Love](https://i.ytimg.com/vi/7pSsh-nxF5c/movieposter.jpg)
+
+> ~~“Do not apologize for crying. Without this emotion, we are only robots.”~~
+>
+>__*“If you clear out all of that space in your mind you would have a door way.”*__
+>
+>Elizabeth Gilbert
