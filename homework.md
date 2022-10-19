@@ -3,7 +3,8 @@
 > “The book is a film that takes place in the mind of the reader. That's why we go to movies and say, "Oh, the book is better.”
 ― Paulo Coelho
 
-## Top movie
+**## Top movie**
+
 *- Interstellar, 2014*
 
 *- Introuchables, 2011*
@@ -17,7 +18,7 @@
 *- Leon, 1994*
 
 
-### Movies that I'm redy to review
+**### Movies that I'm redy to review**
 
 *1. Last Night, 2019*
 
